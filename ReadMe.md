@@ -551,6 +551,13 @@ footer {
 ## OUTPUT:
 
 
+![WhatsApp Image 2025-08-11 at 18 30 32](https://github.com/user-attachments/assets/9b5e7815-4c01-41c7-8902-edb9919281cf)
+
+![WhatsApp Image 2025-08-11 at 18 30 30](https://github.com/user-attachments/assets/08ebcecb-f512-4055-b78c-c5e5331da802)
+
+![WhatsApp Image 2025-08-11 at 18 30 29 (1)](https://github.com/user-attachments/assets/112b5a02-023d-488d-bdbf-c3ada5d95982)
+
+![WhatsApp Image 2025-08-11 at 18 30 29](https://github.com/user-attachments/assets/97d06a6c-ff29-4811-a3ee-68f6a860c90f)
 
 
 
